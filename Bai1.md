@@ -1,0 +1,7 @@
+Nhật ký học tập – Ngày 8/12/2025
+
+Khi bắt đầu học môn này, mục tiêu cá nhân của tôi là hiểu rõ hơn cách ứng dụng công nghệ vào việc học và công việc sau này. Tôi muốn rèn luyện khả năng tư duy, biết cách đặt câu hỏi, thu thập thông tin và sử dụng các công cụ hiện đại để giải quyết vấn đề nhanh hơn, chính xác hơn. Tôi kỳ vọng sau khóa học, mình có thể tự tin sử dụng công nghệ như một phần tự nhiên trong quá trình học tập.
+
+Về kỳ vọng đối với AI, tôi hy vọng AI sẽ trở thành một trợ lý thông minh giúp tôi tóm tắt tài liệu, giải thích các khái niệm khó, đưa ra ví dụ minh họa và hỗ trợ tôi sắp xếp lại ý tưởng khi cần làm bài tập hoặc hoàn thành dự án. Ngoài ra, tôi cũng mong AI giúp tôi luyện kỹ năng viết, gợi ý hướng phân tích, và hỗ trợ kiểm tra lỗi logic trong quá trình làm bài.
+
+Tôi đã từng sử dụng AI trước đây, chủ yếu là để giải thích kiến thức, viết nội dung và tìm hiểu thêm về các lĩnh vực mà tôi chưa quen thuộc. Trải nghiệm ban đầu khá thú vị: AI trả lời nhanh, rõ ràng và giúp tôi tiết kiệm nhiều thời gian. Tuy nhiên, tôi cũng nhận ra rằng không phải lúc nào AI cũng đúng, và mình cần biết cách kiểm chứng thông tin, chọn lọc điều phù hợp. Nhìn chung, việc sử dụng AI khiến tôi cảm thấy việc học trở nên nhẹ nhàng và hiệu quả hơn rất nhiều.
